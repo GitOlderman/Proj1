@@ -9,3 +9,4 @@ I like drink orange!
 广东省东莞市
 I am a chinese,from shanxi province.
 I 苹果手机真烂！
+还是华为手机好用，支持国产！
