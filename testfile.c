@@ -7,3 +7,5 @@ I like drink orange!
 易事特集团股份有限公司
 东莞松山湖工业北路6号
 广东省东莞市
+I am a chinese,from shanxi province.
+I 苹果手机真烂！
